@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @Reganossai
-- 💞️ I’m looking to collaborate on any type of web development projects 💻 
 - 📫 How to reach me? Contact me through my email (ossaireagano@gmail.com)
